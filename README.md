@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Willy3Sticks
+- 👀 I’m interested in Sports such as Basketball, Soccer, Baseball, and Football
+- 🌱 I’m currently learning German
+- 💞️ I’m looking to collaborate on my sports website
+- 📫 How to reach me by calling (980) 579 2941
+- 😄 Pronouns: him and he 
+- ⚡ Fun fact: I play Fortnite
